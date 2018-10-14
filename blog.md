@@ -1,5 +1,5 @@
 ---
-title: This will be used as the title-tag of the page head
+layout: default
 ---
   
 Volg hier mijn avonturen, ontmoeting per ontmoeting
