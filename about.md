@@ -1,1 +1,9 @@
-Saskia de Wildt is een visual storyteller 
+Dwars door het oosten is onderdeel van een langlopend project waarbij ik, Saskia de Wildt, Nederland doorkruis van Noord naar Zuid – dwars door het oosten. Ik ben art-director, visual storyteller en creatief ondernemer. Maar belangrijker dan dat, in deze context: ik ben geboren en getogen Amsterdammer met bijbehorende randstadbubbel. 
+
+Jarenlang werkte ik voor snelle produktiemaatschappijtjes, de meesten met hoofdkantoren binnen de grachtengordel. Ik bezocht de afgelopen jaren netjes alle cultureel links verantwoorde evenementen rondom anti-zwart racisme, vrouwen in de politiek, stereotiepe beeldvorming in de ontwikkelingssector en het neokolonialistische onderwijs curriculum. Altijd in zaaltjes van onze hoofdstad. Ik heb natuurlijk wel veel gereisd! Ik heb grofweg de pancake trail door ongeveer heel Zuid-oost Azië gevolgd, maar ik weet ook heus waar je lekker kan eten in de wat exotischer klinkende bestemmingen als Ouagadougou, Yangon of Jaipur. Kortom, ik ben een vrouw van de wereld. Ik ben politiek bewust, sociaal actief en op de hoogte van wat er speelt. Behalve als het gaat over wat er gebeurt in mijn eigen land, buiten de randstad, want aan de oevers van het IJ kan ik toch alles vinden...
+
+Identificeren met het dagelijkse wel en wee van Loppersum en Groningen doe ik ongeveer evenveel als met laatste nieuws uit Hamburg, Duitsland. Steden als Assen klinken voor mij net zo buitenlands als Leuven. En zonder Google Maps weet ik nog net dat Leeuwarden in Friesland ligt, maar zou ik niet weten in welke richting ik Houten, Haren of Heereveen zou kunnen vinden. En dat kan natuurlijk niet. 
+
+Tijd om het gehaaste Amsterdam te laten voor wat het is en mijn oosterburen eens echt te ontmoeten. Langzaam, met oprechte interesse en oog voor het persoonlijke verhaal. Wie weet leef ik wel in een heel spannend land!
+
+Via deze kaart kan je mijn tocht volgen. Lineair, door gewoon via de pijltjes mijn wandeling te volgen (wat ik je aanraad) – of op thema, door via de onderstaande legenda alleen aan te klikken wat jou interessant lijkt! (alles mag).
