@@ -1,9 +1,5 @@
-<html> 
-	
-	<head>
-		<title>Dwars door het Oosten #langlopendproject</title>
-		<!-- link to main stylesheet -->
-		<link rel="stylesheet" type="text/css" href="/css/main.css">
-	</head>
+---
+title: This will be used as the title-tag of the page head
+---
   
 Volg hier mijn avonturen, ontmoeting per ontmoeting
