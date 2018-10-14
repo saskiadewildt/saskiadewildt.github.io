@@ -6,4 +6,4 @@ Identificeren met het dagelijkse wel en wee van Loppersum en Groningen doe ik on
 
 Tijd om het gehaaste Amsterdam te laten voor wat het is en mijn oosterburen eens echt te ontmoeten. Langzaam, met oprechte interesse en oog voor het persoonlijke verhaal. Wie weet leef ik wel in een heel spannend land!
 
-Via deze kaart kan je mijn tocht volgen. Lineair, door gewoon via de pijltjes mijn wandeling te volgen (wat ik je aanraad) – of op thema, door via de onderstaande legenda alleen aan te klikken wat jou interessant lijkt! (alles mag).
+Via deze website kan je mee op ondekkingstocht door mij te volgen. Via de storymaps of via mijn blog pagina. Je kan mij ook volgen op YouTube. Patreon of Facebook. 
